@@ -1,1 +1,1 @@
-# _now_you_readme
+Gracias por haberme hackeado y mostrarme las debilidades que poseia, si no hubieras ayudado no abria aprendido. La base de datos que tomaste, descuida tengo bks y era data personal. Espero saber de ti pronto pero no creo que yo sea el haceado. Por cierto, es interesante saber que slo tienes el 22 abierto. xoxo
